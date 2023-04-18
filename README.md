@@ -1,6 +1,6 @@
 # BigWhiteLight
 
-## Professional lighting for your meetings, now for FREE! 
+## Professional lighting, wherever you need it, now for FREE! 
 
 Trust BigWhiteLight.com to deliver the big white light you need, when you need it. Perfect for professional photoshoots, self portraits, selfies with friends, or virtual meetings.  
 
